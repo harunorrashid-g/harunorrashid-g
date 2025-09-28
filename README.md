@@ -1,6 +1,6 @@
 ![I am a Wed Developer](https://i.ibb.co.com/1JJ12YDc/download.png)
 
-### Hi there 👋, my name is Harun or rashid
+### Hi there 👋, My Name is Harun or rashid
 #### I am a Wed Developer
 
 
